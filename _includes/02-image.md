@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[Humanoid] https://images.app.goo.gl/jzpzdNHwWLE2Nv3u9
